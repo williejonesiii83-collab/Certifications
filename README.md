@@ -1,3 +1,3 @@
 # Certifications
 MyCC &amp; IT Certifications
-Obtained MyCC certificate
+Here is a list of certificates that I obtained while attending MyCC.
